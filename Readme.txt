@@ -6,3 +6,6 @@ If any one are interested to join our community can DM us at any time:
 Linkedin: https://www.linkedin.com/in/sai-chandu-a8ba0320a/
 
 Here is my linkedIn profile and if you wanted to learn something new or willing to explore your skills to us you are always welcome.😊
+
+
+you can also connect with us on:  https://lifemaster.netlify.app/
